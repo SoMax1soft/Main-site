@@ -3,4 +3,4 @@
 
 ## 🚀 Quick Links
 
-- [🌐 Open Website](https://Max1soft.pw)
+- [🌐 Open Website](https://sl.max1soft.pw/босс)
